@@ -1,1 +1,3 @@
-# Infinitum-Studios
+# Infinitum Studios
+
+## The shop for you!
